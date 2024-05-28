@@ -10,5 +10,5 @@ Meu nome é Henry Pereira de Oliveira
 
 Você pode entrar em contato comigo através de: 
 
-  - 📧: hnery_oli10@hotmail.com
+  - 📧: henry_oli10@hotmail.com
 
